@@ -138,7 +138,7 @@ tag:
 
 ![离开之前和创建孤儿院的老爷爷的一张合照](https://guide-blog-images.oss-cn-shenzhen.aliyuncs.com/about-the-author/college-life/cf43853c49bd489a9fc0ee437a2af432~tplv-k3u1fbpfcp-zoom-1.image.png)
 
-勿以善小而不为！引用《爱的风险》这首歌的一句歌词：“只要人人都献出一点爱，世界将变成美好的人间” 。
+勿以善小而不为！引用《爱的奉献》这首歌的一句歌词：“只要人人都献出一点爱，世界将变成美好的人间” 。
 
 我想看看这个孤儿院的现状，于是在网上有搜了一下，看到了去年 1 月份荆州新闻网的一份报道。
 
